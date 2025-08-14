@@ -1,0 +1,1 @@
+For a detailed explanation about the code, see blog post: https://blog.ademartutor.com/p/is-today-a-good-day-to-sell-coffee
